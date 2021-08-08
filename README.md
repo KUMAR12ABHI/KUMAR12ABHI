@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KUMAR12ABHI
-- 👀 I’m interested in web devloping
+- 👀 I’m interested in web devloper
 - 🌱 I’m currently learning MCA in MANIT BHOPAL
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 7367018043
